@@ -1,4 +1,4 @@
-# What’s New in the 2025 AP Biology Exam? A Comprehensive Guide to the Updated Curriculum
+# What’s New in the 2026 AP Biology Exam? A Comprehensive Guide to the Updated Curriculum
 
 The College Board has officially rolled out a major update to the **AP Biology curriculum**, the first significant revision since 2020. Set to take full effect for the **2026 exam administration**, these changes reflect a clear shift in emphasis: **from rote memorization to scientific reasoning, data analysis, and interdisciplinary application**.
 
